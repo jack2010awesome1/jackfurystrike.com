@@ -1,2 +1,0 @@
-# jackfurystrike.com
-jackfurystrike.com
